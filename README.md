@@ -22,3 +22,18 @@ This description is approximately 500 words.
 
 If you want, I can also rewrite it in a **more concise, reader-friendly storytelling style** for reports or presentations. Do you want me to do that?
 
+<img width="869" height="438" alt="Image" src="https://github.com/user-attachments/assets/a4cf5a1d-e636-4557-8a95-631ad30c3bf2" />
+
+<img width="542" height="516" alt="Image" src="https://github.com/user-attachments/assets/49d19952-27f5-495b-bb10-f2dda3fdeace" />
+
+<img width="621" height="407" alt="Image" src="https://github.com/user-attachments/assets/30911730-ba21-429c-9f82-0d68d928a360" />
+
+<img width="558" height="546" alt="Image" src="https://github.com/user-attachments/assets/809ce72a-b982-4598-908d-e7506b43a311" />
+
+<img width="573" height="425" alt="Image" src="https://github.com/user-attachments/assets/a454e5c0-11d4-4f19-bc8e-cd63bead25c5" />
+
+<img width="253" height="514" alt="Image" src="https://github.com/user-attachments/assets/1ad93897-2489-4fe9-8fa6-b04e44153aa2" />
+
+<img width="856" height="548" alt="Image" src="https://github.com/user-attachments/assets/3c7229f2-13c2-43c8-a988-b615710f3b02" />
+
+<img width="692" height="151" alt="Image" src="https://github.com/user-attachments/assets/136b81c7-f4c3-4f23-8f57-fd5661ee282e" />
